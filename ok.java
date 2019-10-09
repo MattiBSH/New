@@ -1,1 +1,1 @@
-NEJ
+vi laver det om på samme tid
